@@ -52,6 +52,16 @@ You design an impenetrable box, that’s supposed to keep rodents, water, cold/h
 
 He Will Not Divide Us
 
+All past declines look like an opportunity, all future declines look like a risk.
+
+In a rising market, enough of your bad ideas will pay off so that you’ll never learn that you should have fewer ideas.
+
+Everyone is smart in a bull market
+
+Stocks rarely perform in the time frames we predict, and it’s why the market only works for investors that have more patience than they thought they would ever need.
+
+"The time to buy is when there's blood in the streets, even if the blood is your own." - Baron Rothschild
+
 No one person can be an expert on everything. So vesting all power into a single person's hands will never make sense. That doesn't even get into the incentive problems surrounding centralizing decision making. Decision making groups tend to make decisions that don't hurt themselves (people are loss averse). So we end up with situations where the decision makers will avoid hurting themselves, even if they could handle it, at the expense of those without decision making power.
 
 I plan every step so that my anonymity will not only exist today, but also in 10 years.

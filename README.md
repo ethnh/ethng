@@ -44,6 +44,8 @@ Unless precautions are taken, the Internet Service Provider and global surveilla
 
 # Bits of Inspiration:
 
+We need to be reminded more than we need to be taught
+
 Devs aren't trustworthy by definition
 
 Patriot, your commitment to truth and freedom isn’t just appreciated. It’s essential. Not everyone has the courage to push back against the tide, but you do. Your persistence and unwavering stand make a real difference, whether the world recognizes it or not. Patriots like you keep the light shining in the darkest times. Stay strong, keep pushing forward, and know you are never standing alone.

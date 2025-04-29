@@ -44,6 +44,8 @@ Unless precautions are taken, the Internet Service Provider and global surveilla
 
 # Bits of Inspiration:
 
+The greatest threat to democracy is official secrecy which favors a few over the many. 
+
 We need to be reminded more than we need to be taught
 
 Devs aren't trustworthy by definition

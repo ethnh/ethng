@@ -3,9 +3,7 @@
     For we have been socialized to respect fear more than our own needs
 
 # Secure channels:
-# Join my [Ally](https://ally.lol/download/) group : [Click to reveal](https://ally.lol/githuballygroup)
-
-# Join my [Signal](https://signal.org/download/) group : [Click to reveal](https://ally.lol/githubsignalgroup)
+# Directly message me on [Ally](https://ally.lol/download/) : [Click to reveal](https://ally.lol/githuballygroup)
 
 ## Directly message me on [Signal](https://signal.org/download/) : [Click to reveal](https://ally.lol/signaldm)
 
@@ -15,11 +13,7 @@
 
 ## Directly message me on [Session](https://getsession.org/) : [Click to reveal](https://ally.lol/session)
 
-# Join my [Discord](https://discord.com/) group : [Click to reveal](https://ally.lol/discord)
-
-# Join my [Matrix](https://matrix.org/try-matrix/) group : [Click to reveal](https://ally.lol/matrix)
-
-# E-Mail : [Click to reveal](https://ally.lol/githubemail)
+# Directly message me on E-Mail : [Click to reveal](https://ally.lol/githubemail)
 
 ### I welcome all opinions and ideas -- Speak freely 👋
 

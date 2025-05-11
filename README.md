@@ -4,7 +4,7 @@
 
 # Follow me on:
 ## [Bitchute](https://old.bitchute.com/channel/UZd6y1gQ4qVI/)
-## [Twitter/X](https://x.com/compose/post)
+## [Twitter/X](https://x.com/PresidentEthanH)
 ## [Instagram](https://www.instagram.com/presidentethanhindmarsh/)
 ## [Reddit](https://www.reddit.com/user/Electronic_Grape_749/)
 ## [Tiktok](https://www.tiktok.com/@ethanhindmarsh)

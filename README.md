@@ -2,6 +2,16 @@
 
     For we have been socialized to respect fear more than our own needs
 
+# Follow me on:
+## [Bitchute](https://old.bitchute.com/channel/UZd6y1gQ4qVI/)
+## [Twitter/X](https://x.com/compose/post)
+## [Instagram](https://www.instagram.com/presidentethanhindmarsh/)
+## [Reddit](https://www.reddit.com/user/Electronic_Grape_749/)
+## [Tiktok](https://www.tiktok.com/@ethanhindmarsh)
+## [Youtube](https://www.youtube.com/channel/UC547Lflhs-q0_-YpmarqpJg/)
+## [Odysee](https://odysee.com/@EthanHindmarsh/)
+
+
 # Secure channels:
 # Directly message me on [Ally](https://ally.lol/download/) : [Click to reveal](https://ally.lol/githuballygroup)
 
@@ -15,14 +25,6 @@
 
 # Directly message me on E-Mail : [Click to reveal](https://ally.lol/githubemail)
 
-# Follow me on:
-## [Bitchute](https://old.bitchute.com/channel/UZd6y1gQ4qVI/)
-## [Twitter/X](https://x.com/compose/post)
-## [Instagram](https://www.instagram.com/presidentethanhindmarsh/)
-## [Reddit](https://www.reddit.com/user/Electronic_Grape_749/)
-## [Tiktok](https://www.tiktok.com/@ethanhindmarsh)
-## [Youtube](https://www.youtube.com/channel/UC547Lflhs-q0_-YpmarqpJg/)
-## [Odysee](https://odysee.com/@EthanHindmarsh/)
 
 ### I welcome all opinions and ideas -- Speak freely 👋
 

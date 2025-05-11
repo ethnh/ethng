@@ -15,6 +15,15 @@
 
 # Directly message me on E-Mail : [Click to reveal](https://ally.lol/githubemail)
 
+# Follow me on:
+## [Bitchute](https://old.bitchute.com/channel/UZd6y1gQ4qVI/)
+## [Twitter/X](https://x.com/compose/post)
+## [Instagram](https://www.instagram.com/presidentethanhindmarsh/)
+## [Reddit](https://www.reddit.com/user/Electronic_Grape_749/)
+## [Tiktok](https://www.tiktok.com/@ethanhindmarsh)
+## [Youtube](https://www.youtube.com/channel/UC547Lflhs-q0_-YpmarqpJg/)
+## [Odysee](https://odysee.com/@EthanHindmarsh/)
+
 ### I welcome all opinions and ideas -- Speak freely 👋
 
 ### I value interconnectedness, creativity, and human well-being most in life. I create my worldview by seeking diverse perspectives, questioning assumptions, and staying open to change. New experiences or evidence that contradict my current beliefs would change my worldview. My priorities are empowering others, fostering sustainability, and pursuing knowledge. When laws are unjust or harm fundamental rights, civil disobedience may be morally justified. Creating design systems that deliver context-sensitive, human-centered outcomes, even on a large scale.

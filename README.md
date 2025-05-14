@@ -10,7 +10,8 @@
 ## [Tiktok](https://www.tiktok.com/@ethanhindmarsh)
 ## [Youtube](https://www.youtube.com/channel/UC547Lflhs-q0_-YpmarqpJg/)
 ## [Odysee](https://odysee.com/@EthanHindmarsh/)
-
+## [Threads](https://www.threads.com/@presidentethanhindmarsh)
+## [Facebook](https://www.facebook.com/profile.php?id=100088392352402)
 
 # Secure channels:
 # Directly message me on [Ally](https://ally.lol/download/) : [Click to reveal](https://ally.lol/githuballygroup)

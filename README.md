@@ -1,6 +1,5 @@
 # Ethan Hindmarsh For President 2040
-
-    For we have been socialized to respect fear more than our own needs
+### For we have been socialized to respect fear more than our own needs
 
 # Follow me on:
 ## [Bitchute](https://ally.lol/ethangithubbitchute)

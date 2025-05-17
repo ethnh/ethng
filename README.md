@@ -3,28 +3,30 @@
     For we have been socialized to respect fear more than our own needs
 
 # Follow me on:
-## [Bitchute](https://old.bitchute.com/channel/UZd6y1gQ4qVI/)
-## [Twitter/X](https://x.com/PresidentEthanH)
-## [Instagram](https://www.instagram.com/presidentethanhindmarsh/)
-## [Reddit](https://www.reddit.com/user/Electronic_Grape_749/)
-## [Tiktok](https://www.tiktok.com/@ethanhindmarsh)
-## [Youtube](https://www.youtube.com/channel/UC547Lflhs-q0_-YpmarqpJg/)
-## [Odysee](https://odysee.com/@EthanHindmarsh/)
-## [Threads](https://www.threads.com/@presidentethanhindmarsh)
-## [Facebook](https://www.facebook.com/profile.php?id=100088392352402)
+## [Bitchute](https://ally.lol/ethangithubbitchute)
+## [Twitter/X](https://ally.lol/ethangithubtwitter)
+## [Instagram](https://ally.lol/ethangithubinstagram)
+## [Reddit](https://ally.lol/ethangithubreddit)
+## [Tiktok](https://ally.lol/ethangithubtiktok)
+## [Youtube](https://ally.lol/ethangithubyoutube)
+## [Odysee](https://ally.lol/ethangithubodysee)
+## [Threads](https://ally.lol/ethangithubthreads)
+## [Facebook](https://ally.lol/ethangithubfacebook)
+## [LinkedIn](https://ally.lol/ethangithublinkedin)
 
 # Secure channels:
-# Directly message me on [Ally](https://ally.lol/download/) : [Click to reveal](https://ally.lol/githuballygroup)
-
-## Directly message me on [Signal](https://signal.org/download/) : [Click to reveal](https://ally.lol/signaldm)
+# Directly message me on [Ally](https://ally.lol/download/) : [Click to reveal](https://ally.lol/etangithuballydm)
+# Directly message me on [Signal](https://signal.org/download/) : [Click to reveal](https://ally.lol/ethangithubsignaldm)
+# Join my [Ally](https://ally.lol/download/) group : [Click to reveal](https://ally.lol/ethangithuballygroup)
+# Join my [Signal](https://signal.org/download/) group : [Click to reveal](https://ally.lol/ethangithubsignalgroup)
 
 # Insecure channels:
 
-## Directly message me on [SimpleX](https://simplex.chat/) : [Click to reveal](https://ally.lol/simplex)
+## Directly message me on [SimpleX](https://simplex.chat/) : [Click to reveal](https://ally.lol/ethangithubsimplex)
 
-## Directly message me on [Session](https://getsession.org/) : [Click to reveal](https://ally.lol/session)
+## Directly message me on [Session](https://getsession.org/) : [Click to reveal](https://ally.lol/ethangithubsession)
 
-# Directly message me on E-Mail : [Click to reveal](https://ally.lol/githubemail)
+# Directly message me on E-Mail : [Click to reveal](https://ally.lol/ethangithubemail)
 
 
 ### I welcome all opinions and ideas -- Speak freely 👋

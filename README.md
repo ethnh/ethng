@@ -51,6 +51,10 @@ Unless precautions are taken, the Internet Service Provider and global surveilla
 
 # Bits of Inspiration:
 
+the ccp doesn't even find anyone guilty of ip infraction if it benefits china in any way
+
+they have a law there that any chinese national who can get hands on sensitivie information MUST DO SO no matter where they are
+
 The greatest threat to democracy is official secrecy which favors a few over the many. 
 
 We need to be reminded more than we need to be taught
